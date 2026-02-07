@@ -87,19 +87,17 @@ Instagram's official data download is slow and the format is messy.
 
 ```
 Tarih - Saat: 19 Ara 2024 23:12
-Hikaye yanıtı: @senaakomur'un hikayesine ifade bıraktı [Hikaye Görseli]
+Hikaye yanıtı: @xxxxxxx'un hikayesine ifade bıraktı [Hikaye Görseli]
 ---
 Tarih - Saat: 12 May 2025 00:02
 Hikaye yanıtı: Nice mutlu yaşlarına [Görsel]
-Gelen: Tesekkur ederiim 😊
-Gönderilen: Asıl ben teşekkür ederim… -❤️beğenildi
-Gelen: Baska ne yapacaksın ki kutlaman yeter :d
-Gönderilen: Çok şey yapılabilir ahaha 😄
+Gelen: Tesekkur ederiimmmmmmmmmmmmmmmm 😊
+Gönderilen: Ricalar -❤️beğenildi
 ---
 Tarih - Saat: 5 Oca 2026 00:38
 [Reels]
 Gönderilen: Bunu izleyince içim bi yumuşadı sebepsizce... -❤️beğenildi
-Gelen: Bayiliyorum kiz cocuklarina
+Gelen: Benimde aşkım
 ```
 
 ---
